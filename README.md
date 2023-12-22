@@ -1,1 +1,1 @@
-# -High-Fidelity-Infrared-Audio-Transmitter-and-Receiver-System
+# High-Fidelity-Infrared-Audio-Transmitter-and-Receiver-System
